@@ -14,7 +14,11 @@ Girona underlined their La Liga title credentials with a famous victory at Barce
 Goals from Artem Dovbyk, Miguel Gutierrez, Valery Fernandez and Cristhian Stuani gave the visitors a deserved first ever league win over their Catalan rivals.
 
 
+Ukraine forward Dovbyk's eighth goal of the campaign set them on their way in the 12th minute and came after he was expertly teed up by his international team-mate Viktor Tsyhankov, who beat the home side's offside trap to escape down the right channel.
 
+
+
+etflix's 1980s-set sci-fi series Stranger Things is less a show than a phenomenon. Over its four seasons to date it has become one of the streaming service's biggest global hits. It has made stars of some of its young cast members such as 19-year-old Millie Bobby Brown, who plays Eleven, and 21-year-old Sadie Sink who plays "Max" Mayfield. Older actors such as Winona Ryder, as Joyce Byers, and David Harbour, as Jim Hopper, have seen their careers boosted too. It has spawned clothing lines and merchandise and has even been credited with an upsurge of interest in the fantasy role-playing game Dungeons & Dragons. Now, with the fifth and final series delayed because of the actors' and writers' strikes, Stranger Things is extending its influence into London's West End with an original play. Directed by three-times Oscar-nominated Stephen Daldry and with a script by Kate Trefry, a writer on the TV show, Stranger Things: The First Shadow is based on a story cooked up by Trefry, Jack Thorne (who co-wrote Harry Potter and the Cursed Child) and showrunners the Duffer Brothers. It has been reported that it's already being lined up for a Broadway transfer, while two further stage instalments are being considered.
 Robert Lewandowski's header and Ilkay Gundogan's late goal were mere consolations for Barca.
 
 The result sees Girona open up a two-point gap to Real Madrid.
