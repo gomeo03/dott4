@@ -2,7 +2,8 @@ Federico Gatti scored the only goal as Juventus edged defending champions Napoli
 
 The defender scored a late winner last Friday against Monza and followed that up with another decisive strike, heading home in the 51st minute.
 
-Napoli had the better of the first half but couldn't make their chances count.
+Napoli had the better of the first half but couldn't make their chances count.etflix's 1980s-set sci-fi series Stranger Things is less a show than a phenomenon. Over its four seasons to date it has become one of the streaming service's biggest global hits. It has made stars of some of its young cast members such as 19-year-old Millie Bobby Brown, who plays Eleven, and 21-year-old Sadie Sink who plays "Max" Mayfield. Older actors such as Winona Ryder, as Joyce Byers, and David Harbour, as Jim Hopper, have seen their careers boosted too. It has spawned clothing lines and merchandise and has even been credited with an upsurge of interest in the fantasy role-playing game Dungeons & Dragons. Now, with the fifth and final series delayed because of the actors' and writers' strikes, Stranger Things is extending its influence into London's West End with an original play. Directed by three-times Oscar-nominated Stephen Daldry and with a script by Kate Trefry, a writer on the TV show, Stranger Things: The First Shadow is based on a story cooked up by Trefry, Jack Thorne (who co-wrote Harry Potter and the Cursed Child) and showrunners the Duffer Brothers. It has been reported that it's already being lined up for a Broadway transfer, while two further stage instalments are being considered.
+
 
 Victor Osimhen had the opportunity to equalise but was unable to capitalise on Wojciech Szczesny's poor kick.
 
